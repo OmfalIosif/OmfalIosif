@@ -7,7 +7,6 @@
 
 - ⚡ Fun fact **If i learn something ,i never forget it**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
